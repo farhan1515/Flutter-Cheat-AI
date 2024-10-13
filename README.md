@@ -11,4 +11,7 @@
 
 ![Frame 2](https://github.com/user-attachments/assets/40645374-ed8d-45f9-97ec-2ee14be3da24)
 
+# DIRECT DOWNLOAD LINK
+https://www.4sync.com/web/directDownload/0HdT_Gas/7HDSMMTK.feb9a9fefb7942d7b9ad30425ab9cdf9
+
 # SOON AVAILABLE ON PLAY STORE
