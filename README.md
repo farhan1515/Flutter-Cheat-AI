@@ -14,4 +14,5 @@
 # DIRECT DOWNLOAD LINK
 https://www.4sync.com/web/directDownload/0HdT_Gas/7HDSMMTK.feb9a9fefb7942d7b9ad30425ab9cdf9
 
-# SOON AVAILABLE ON PLAY STORE
+# AVAILABLE ON PLAY STORE
+https://play.google.com/store/apps/details?id=com.technova15.cheat_ai&pcampaignid=web_share
